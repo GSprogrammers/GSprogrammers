@@ -1,4 +1,4 @@
-Hello this is an account for a orgnaization owners of this organization is
+Hello this is an account for a orgnaization.Owners of this organization is,
 
   1.[Gaviru Fernando](https://github.com/GAVIFDO)
   
